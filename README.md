@@ -1,1 +1,1 @@
-# frontiersynthai.github.io
+# FrontierSynth AI
